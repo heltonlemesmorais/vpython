@@ -2,5 +2,3 @@
   
 
 Check out my [Linked In](https://www.linkedin.com/in/helton-morais-838612166/)
-"# vpython" 
- 
